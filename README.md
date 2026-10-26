@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Web development**
 
-- 📫 How to reach me **russy44yahoo.co.uk**
+- 📫 How to reach me **russpr44@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
